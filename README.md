@@ -1,1 +1,3 @@
 # RadProject
+
+This shit is so RADTASTIC u cant even understand what the code is doing. Trust me ive been doing this shit since .........
